@@ -1,4 +1,4 @@
-# Group 5 Sia Dauda FC
+# Group 5 FC
 
 ## About
 Group 5 FC is a football club dedicated to promoting talent, teamwork, and excellence in the sport. The club focuses on developing players’ skills both on and off the field while encouraging discipline, unity, and sportsmanship.
